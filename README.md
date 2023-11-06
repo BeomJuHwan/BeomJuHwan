@@ -1,3 +1,3 @@
 # Chicken Sandwich
 > Do you love Chicken Sandwich? <br>
-> I love gay
+> I love minkyung <3
